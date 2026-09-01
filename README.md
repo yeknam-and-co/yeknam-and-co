@@ -1,2 +1,4 @@
-## mmm femboys uwu owo >.< >x< xD xP (,,>﹏<,,) · (˶˃ ᵕ ˂˶) · ( ^ω^ ) · ⩊ · (╥﹏╥) · ⸜(｡ ˃ ᵕ ˂ )⸝♡ · (⸝⸝⸝>﹏<⸝⸝⸝) · (⸝⸝⸝╸w╺⸝⸝⸝) nya~
+helloooooooooooooooo
 
+I post my work on twitter mostly.
+twitter/x: yekanmbal
