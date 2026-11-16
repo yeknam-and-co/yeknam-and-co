@@ -1,8 +1,8 @@
-**helloooooooooooooooo**
+**yooooo**
 
-I post my work on twitter mostly.
+I post stuff on twitter
 
 twitter/x: [@yeknampogo](https://x.com/yeknampogo)  
 website: [yeknam.studio](https://yeknam.studio)
 
-have a great day :)
+have a great day :D
